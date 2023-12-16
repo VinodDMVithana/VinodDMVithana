@@ -1,4 +1,3 @@
-https://github.com/VinodDMVithana/VinodDMVithana/commit/e9c1423635996de202ff5b88a05464e1136afea0
 <h1 align="center">Hi 👋, I'm Dilshan Mahavithana</h1>
 <h3 align="center">A passionate IT undergraduate student in Sri Lanka</h3>
 
