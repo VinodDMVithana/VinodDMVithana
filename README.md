@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **BSc.Information Technology Hons.Ugt @SLIIT**
 
-- 📫 How to reach me **pasinduvinodya@gmail.com**
+- 📫 How to reach me **dilshanmvithana@gmail.com**
 
 - ⚡ Fun fact **I Think Im Funny**
 
